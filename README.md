@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @omonjonovm
+- 👋 Hi, I’m Murodjon
 - 👀 I’m interested in footbal
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on ...
