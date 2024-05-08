@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Murodjon
-- 👀 I’m interested in footbal
 - 🌱 I’m currently learning IT
 -
 
