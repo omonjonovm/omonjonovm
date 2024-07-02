@@ -1,2 +1,3 @@
-👋 Hi, I’m Murodjon
-🌱 I’m currently learning IT
+👋 Hi, I'm Murodjon
+🥇 I'm currently learning IT
+
